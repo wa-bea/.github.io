@@ -9,3 +9,6 @@ The character was created by series producer Shonda Rhimes, and is portrayed by 
 * competitive
 * something
 * somethingelse
+
+Cristina said:
+>Pretty good is not enough, I wanna be great.
