@@ -12,3 +12,6 @@ The character was created by series producer Shonda Rhimes, and is portrayed by 
 
 Cristina said:
 >Pretty good is not enough, I wanna be great.
+
+
+<img src="https://i.pinimg.com/originals/89/3f/15/893f1593734756924f87099b6ab8ff7d.jpg"/>
